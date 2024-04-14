@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NEEMABBN
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning React JS
+- 💞️ I’m looking to collaborate on web design
+- 😄 Pronouns: silent
+- ⚡ Fun fact: 404 NOT FOUND
