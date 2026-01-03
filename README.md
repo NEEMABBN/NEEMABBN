@@ -1,1 +1,1 @@
-- 🌱 I think the most important thing about me is that i am a quick learner & flexible, which makes me fit into any team:)
+- 💎 Carbon under pressure Mt :)
